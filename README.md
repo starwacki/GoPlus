@@ -21,8 +21,8 @@
 
 
 ## Demo
-*(Click to image)
+*(Click image)
 
 
 
-[![Watch the video](https://i.imgur.com/UcTYVVK.png)](https://www.youtube.com/watch?v=WystgtGMkZk)
+[![Watch the video](https://i.imgur.com/UcTYVVK.png)](https://www.youtube.com/watch?v=xd-EOX4qu7k)
